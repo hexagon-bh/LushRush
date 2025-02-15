@@ -6,6 +6,7 @@
 </div>
 <strong>🛠️Maker</strong>: 조윤혁, 송승현<br>
 <strong>📅Production Period</strong>: 2023.1.3 ~ 2023.8.16<br>
+<strong>⚡ps.</strong> 승현아..술 적당히 마셔!!<br>
 
 <br><br>
 <span>*이 작품은 해당 계정 소유자가 참여한 작품이 아닙니다.</span>
